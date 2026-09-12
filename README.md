@@ -4,5 +4,5 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤsign my ata for zamgi crumbsㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤhi guys i dont know how to make my readme pretty
 
-ㅤㅤㅤㅤi only block bot accounts that follow me .. idc about spam follows!
+ㅤㅤㅤㅤi only block bot accounts that follow me .. idc about spam follows!             YOU SHOULD READ MY [FANFIC](https://archiveofourown.org/works/92445146/chapters/246420096)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="220" height="220" alt="Image" src="https://github.com/user-attachments/assets/b03b3c7a-ba86-4400-8f04-f937561f713a" />
